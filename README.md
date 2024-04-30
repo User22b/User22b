@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @User22b
+- 👀 I’m interested in programming
